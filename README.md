@@ -1,16 +1,15 @@
-## Hi there 👋
+Hello ꉂ(˵˃ ᗜ ˂˵)
 
-<!--
-**supernova11x/supernova11x** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+call me rain or nova ^.^
 
-Here are some ideas to get you started:
+i am usually afk or offtab but c+h is welcomed
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+not much of a talker, sorry in advance
+
+✩ ✩ ✩
+
+i mainly ship mileven, but i also like lumax, jancy, and stonathan any ships are welcome though! i don't hate (˶ᵔ ᵕ ᵔ˶)
+
+✩ ✩ ✩
+
+![mileven](https://github.com/user-attachments/assets/822f7867-1579-4a6d-bd38-9dd5d7d1f3cd)
