@@ -8,7 +8,7 @@ not much of a talker, sorry in advance
 
 ✩ ✩ ✩
 
-i mainly ship mileven, but i also like lumax, jancy, stonathan, henderhop, and byler. any ships are welcome though! i don't hate (˶ᵔ ᵕ ᵔ˶)
+i mainly ship mileven, but i also like lumax, stonathan, and henderhop.  any ships are welcome though! i don't hate (˶ᵔ ᵕ ᵔ˶)
 
 ✩ ✩ ✩
 
